@@ -1,4 +1,4 @@
-# Dela's Profile :bowtie:
+# Dela's Profile:bowtie:
 
 ## Hello There :wave:
 
